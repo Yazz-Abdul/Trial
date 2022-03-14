@@ -10,3 +10,8 @@ Think before you leap
 ##### Motivational Links
 [*Positive Vibes Only*](https://parade.com/973277/jessicasager/inspirational-quotes/)
 
+##### Don't give up
+
+@hey tec
+
+
